@@ -18,4 +18,4 @@ I enjoy building practical solutions and turning real-world problems into useful
 
 📫 **Let's connect**
 
-[LinkedIn]([TON_LIEN_LINKEDIN](https://www.linkedin.com/in/plamedi-nzogu-1788692bb/)) • [Email](mailto:plamedinzogu32@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/plamedi-nzogu-1788692bb/) • [Email](mailto:plamedinzogu32@gmail.com)
